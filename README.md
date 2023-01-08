@@ -14,7 +14,7 @@ TEAM MOHIHI "MOBIL HINDAR-HINDAR"
 3. Vivie Salma Steviana 
 4. Dede Kusmiadi Awaludin 
 5. Muhammad Fachriza Thoyib Firdaus 
-6. Marsha Amalia Ayuningsing  
+6. Marsha Amalia Ayuningsih 
 
 
 Semester 5B tahun 2023
